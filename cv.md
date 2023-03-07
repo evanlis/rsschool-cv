@@ -5,6 +5,7 @@
 * E-mail: ilyaa2400@mail.ru
 * Telegram: [evanlis](https://t.me/evanlis)
 * Instagram: [ilyaa2400](https://www.instagram.com/ilyaa2400/)
+* [VK](https://vk.com/illiaman)
 
 ## About me: ##
 
